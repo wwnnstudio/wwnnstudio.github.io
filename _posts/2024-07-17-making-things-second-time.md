@@ -4,7 +4,7 @@ title: Making things a second time
 subtitle: They mostly get better! 
 gh-repo: daattali/beautiful-jekyll
 gh-badge: [star, fork, follow]
-tags: [test]
+tags: [remaking][making]
 comments: true
 mathjax: true
 author: Stef Lai
