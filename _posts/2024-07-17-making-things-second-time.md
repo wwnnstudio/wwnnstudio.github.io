@@ -3,11 +3,12 @@ layout: post
 title: Making and remaking
 subtitle: Second time is better
 tags: [ceramics, making]
+cover-img: "/assets/img/butts.jpg"
 ---
 
 When I first started making ceramics I would be afriad I would make a thing and never be able to make it again. As a beginner, everyone is too precious about their pieces. It's one of the first lessons of ceramics, you can't be too precious about something until it's fully fired, given the unpredictable and long process. But it's also that being too afraid of a piece failing means you don't push the boundaries. Sure it's still can be annoying to remake things, but there is also satisfaction now in refining and making objects that are stronger, the process smoother. 
 
-###Tale of two cats
+### Tale of two cats
 
 ![two ceramic cat shaped salt cellars](/assets/img/GR044692.JPG)
 
@@ -19,7 +20,7 @@ The second cat was made twice. The first time I formed the body out of a single 
 
 For the *second* second cat I made sure the cylinder was big enough to get my hand into. I formed the butt by moulding a round piece of slab around a tennis ball the studio had lying around, and then attached it to a cylinder. Attaching the feet now that it was the second time was also easier. I made little disc feet and then built up the legs. The first time I tried to make the legs and feet then attach but found the legs too weak to support the cylinder.
 
-###Decorating 
+### It's hard to stay excited about decorating 
 
 Having spent so long thinking of the form when making ceramics, I sometimes find it hard to think about and plan the decorating and glazing. The first cat was just striped according to how I think of a cartoon tabby. When it came time to decorate and glaze the second one, I looked up pictures of tabbies and tried to imitate how the stripes sometimes turn into spots and go from the back to the hind legs. 
 
