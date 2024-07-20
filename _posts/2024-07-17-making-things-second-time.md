@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Making and remaking
+title: Remaking things
 subtitle: Second time is better
 tags: [ceramics, making]
 thumbnail-img: "/assets/img/butts.JPG"
