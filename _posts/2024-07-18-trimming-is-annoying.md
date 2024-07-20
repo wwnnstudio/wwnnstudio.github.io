@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Trimming is annoying 
-subtitle: Not that good at it, and that's OK 
+title: Having a hard time with throwing stuff
+subtitle: Just not that good at it, and that's OK 
 tags: [ceramics, trimming, throwing]
 cover-img: "/assets/img/ufo718.jpg"
 thumbnail-img: "/assets/img/thrown_ufo.jpg"
