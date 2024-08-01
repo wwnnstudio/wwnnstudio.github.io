@@ -15,7 +15,7 @@ I tried Paulus Berensohn's sketching exercise -- timed "sketches" with small han
 
 ![two roughly pinched small cups in white clay](/assets/img/1min2.jpg)
 
-### *The* syllabus
+### *The* plan!? 
 
 It's challenging to come up with categories, or a system. 
 
