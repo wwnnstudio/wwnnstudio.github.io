@@ -18,7 +18,7 @@ Clothing is the greatest example of the irony that presumes polar opposition bet
 
 The social media world of ceramics is full of of photos and videos of a young, good-looking person at a wheel in a sunny, clean studio, making mugs in small batches. Occasionally there are videos from Jingdezhen of uncles in their undershirts, chain smoking while turning the most beautiful and delicate porcelain tea cups. Then there are the masters in Korea and Japan, who showcase their particular sets of techniques for ceramics making in their traditions, often agaist a rustic backdrop of the courntryside or traditional rural architecture.  
 
->![stacks of rooster bowls](/assets/img/rooster_bowls_mass.jpg)
+![stacks of rooster bowls](/assets/img/rooster_bowls_mass.jpg)
 
 > The rooster bowl was imported to Thailand from China. In the original artwork, the rooster symbolized hard work while the banana leaf and red peony represented dreams of good fortune.
 > 
