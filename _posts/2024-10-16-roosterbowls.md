@@ -26,7 +26,8 @@ The social media world of ceramics is full of of photos and videos of a young, g
 > 
 > As Lampang began mass producing tableware with rooster designs, the bowl became one of the region’s best-selling products—bringing financial stability and freedom to Lampang locals.
 >
-> Although Lampang continues to manufacture rooster bowls today, few factories can afford to design rooster bowls according to the traditional style and material, causing the original hand-painted rooster bowls to become a rare collector’s item. 
+> Although Lampang continues to manufacture rooster bowls today, few factories can afford to design rooster bowls according to the traditional style and material, causing the original hand-painted rooster bowls to become a rare collector’s item.
+> 
 > (Celebrating the Lampang Rooster Bowl Doodle - Google Doodles, n.d.)
 
 So I decided to make myself a pair of rooster bowls in order to explore, in my own small way, the intircacies of dedicating my time to learning and practicing a craft. If I were being cliche a and a bit glib I would say it made me appreciate so much the skill that goes into making a painted bowl, but to me right now it just reflects the very different value we place on the status of the person handmaking the item. 
