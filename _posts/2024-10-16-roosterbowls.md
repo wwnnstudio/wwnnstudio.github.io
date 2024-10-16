@@ -16,7 +16,7 @@ The irony of my little anecdote is that even if they *had* been drop shipped fro
 
 Clothing is the greatest example of the irony that presumes polar opposition between 'handmade' and 'mass produced'. Even the cheapest flimsy top from Shein will have been put through a sewing machine by human hands, as it is difficult for machines to manipulate fabric reliably because it is soft and flexible. Crochet items that have been cropping up more and more in fast fashion stores are 100% handmade -- to my knowledge there are currently no machines that crochet. 
 
-The social media world of ceramics is full of of photos and videos of a young, good-looking person at a wheel in a sunny, clean studio, making mugs in small batches. Occasionally there are videos from Jingdezhen of uncles in their undershirts, chain smoking while turning the most beautiful and delicate porcelain tea cups. Then there are the masters in Korea and Japan, who showcase their particular sets of techniques for ceramics making in their traditions, often agaist a rustic backdrop of the courntryside or traditional rural architecture.  
+The social media world of ceramics is full of of photos and videos of a young, good-looking person at a wheel in a sunny, clean studio, making mugs in small batches. Occasionally there are videos from Jingdezhen of uncles in their undershirts, chain smoking while turning the most beautiful and delicate porcelain tea cups. Then there are the masters in Korea and Japan, who showcase their particular sets of techniques for ceramics making in their traditions, often agaist a rustic backdrop of the courntryside or historical rural architecture.  
 
 ![stacks of rooster bowls](/assets/img/rooster_bowls_mass.jpg)
 
