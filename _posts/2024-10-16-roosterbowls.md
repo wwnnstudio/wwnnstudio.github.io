@@ -36,4 +36,4 @@ So I decided to make myself a pair of rooster bowls in order to explore, in my o
 
 This sort of shoots this post into the realm of "*what is art??*" so I'm going to leave it here. 
 
-(Notes for myself: not discussed by very relevant: fair wages, cost of labour, origniality, consumption, self-relization, the experience economy, the image of creating on social media, slipcasting, tools)
+(*NOTES* not discussed by very relevant: fair wages, cost of labour, origniality, consumption, self-relization, the experience economy, the image of creating on social media, slipcasting, tools)
