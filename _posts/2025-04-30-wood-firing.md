@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The moon has to have a dark side
+title: The moon has a dark side
 tags: [ceramics, wood fired, glazing, design]
 cover-img: "/assets/img/fire.jpg"
 thumbnail-img: "/assets/img/fire.jpg"
